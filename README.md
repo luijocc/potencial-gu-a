@@ -1,0 +1,1 @@
+# potencial-gu-a
